@@ -1,5 +1,6 @@
 # Mini_project_3
 
-Wellllllllllllllllllllllllllllllllll
+Final project 3
 
-I'm soooo tired
+Summer vacation yeappppppppppp
+Here I come 
