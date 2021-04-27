@@ -2,5 +2,4 @@
 
 Final project 3
 
-Summer vacation yeappppppppppp
-Here I come 
+Implement an AI player.
